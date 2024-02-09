@@ -1,0 +1,6 @@
+- 👋 Hi, ich bin @taulpeichmann
+- Ich studiere Verwaltungsinformatik an der DHGE in Gera
+- Ich arbeite und wohne in Erfurt
+- Ich lade hier vielleicht ab und zu was hoch
+- Ich werde mit einem Freund eine Firma gründen, mit der wir Webseiten für Unternehmen erstellen
+- Ich kann nicht besonders gut Englisch
